@@ -1,0 +1,2 @@
+Critfacts offers various videos intended to inform and entertain. This is "Define Woman".
+[![You knew it was coming](https://img.youtube.com/vi/o15U63mvUPE/0.jpg)](https://www.youtube.com/watch?v=o15U63mvUPE)

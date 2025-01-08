@@ -1,0 +1,1 @@
+We can spend 3 hours yelling at each other, or you can spend 15 minutes watching [this video](../../Sources/Critfacts/DefineWoman.md)
